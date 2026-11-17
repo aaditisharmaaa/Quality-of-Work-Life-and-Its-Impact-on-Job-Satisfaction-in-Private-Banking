@@ -1,0 +1,1 @@
+# Quality-of-Work-Life-and-Its-Impact-on-Job-Satisfaction-in-Private-Banking
